@@ -8,8 +8,8 @@
  <br>
   <b>links</b><br>
   <a href="https://urinalshitter.straw.page/">strawpage</a> ⋆
-  <a href="https://urinalshitter.straw.page/">wip</a> ⋆
-  <a href="https://urinalshitter.straw.page/">wip</a>
+  <a href="https://en.pronouns.page/@urinalshitter">pronouns page</a> ⋆
+  <a href="#">rentry (wip)</a>
    <br><br>
    <img src="https://i.postimg.cc/xdmZg4c7/chainsbanner.gif"><img src="https://i.postimg.cc/xdmZg4c7/chainsbanner.gif"><img src="https://i.postimg.cc/xdmZg4c7/chainsbanner.gif">
 <p align="center">
